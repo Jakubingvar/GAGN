@@ -1,0 +1,2 @@
+# GAGN
+hopverkefni
